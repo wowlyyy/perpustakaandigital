@@ -13,7 +13,7 @@ Berikut ini adalah Koleksi yang dimiliki:
 6. [My Favourite Recipe (International Cookbook)](ebook/My-favourite-recipe-International-Cookbook-University-of-G-ttingen.pdf) – University of Göttingen (2018)
 7. [Personal Safety and Self-Defense Training: Strategic Living](ebook/personal-safety-and-self-defense-training-strategic-living.pdf) – Undefined (Undefined)
 8. [The Call of Cthulhu](ebook/the-call-of-cthulhu-h-p-lovecraft.pdf) – H. P. Lovecraft (1928)
-9. [What Desig Can't Do: Essays on Design and Disillusion](ebook/What-Design-Can-t-Do-Essays-on-Design-and-Disillusion-Silvio-Lorusso.pdf) – Silvio Lorusso (2023)
+9. [What Design Can't Do: Essays on Design and Disillusion](ebook/What-Design-Can-t-Do-Essays-on-Design-and-Disillusion-Silvio-Lorusso.pdf) – Silvio Lorusso (2023)
 10. [Unasylva: Sustainable Wildlife Management](ebook/unasylva-sustainable-wildlife-management-food-and-agriculture-organization-of-the-united-nations.pdf) – R. Cooney, dkk. (2017)
 11. [Ringkasan UGC PATI](ebook/ringkasan-ugc-pati.pdf) - Milzam (2026)
 
