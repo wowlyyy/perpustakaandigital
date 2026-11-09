@@ -8,7 +8,7 @@ Berikut ini adalah Koleksi yang dimiliki:
 1. [Carmilla](ebook/carmilla-sheridan-le-fanu.pdf) – Sheridan Le Fanu (1872) 
 2. [Deliciously Healthy Dinners](ebook/Deliciously-healthy-dinners-U.S.-Department-of-Health-and-Human-Services.pdf) – U.S. Department of Health and Human Services (2009)
 3. [Engineering Statics: Open and Interactive](ebook/engineering-statics-open-and-interactive-daniel-w-baker-william-haynes-1154.pdf) – Daniel W. Baker & William Haynes (2026)
-4. [Introduction to Graohic Designing](ebook/Introduction-to-Graphic-Designing-Jersey-Davis.pdf) – Jersey Davis (2024)
+4. [Introduction to Graphic Designing](ebook/Introduction-to-Graphic-Designing-Jersey-Davis.pdf) – Jersey Davis (2024)
 5. [LIFE: Improving the Conservatiion Status of Species and Habitats](ebook/life-improving-the-conservation-status-of-species-and-habitats-european-commission.pdf) – European Climate, Infrastructure and Environment Executive Agency (2010)
 6. [My Favourite Recipe (International Cookbook)](ebook/My-favourite-recipe-International-Cookbook-University-of-G-ttingen.pdf) – University of Göttingen (2018)
 7. [Personal Safety and Self-Defense Training: Strategic Living](ebook/personal-safety-and-self-defense-training-strategic-living.pdf) – Undefined (Undefined)
