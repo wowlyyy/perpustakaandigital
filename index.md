@@ -9,7 +9,7 @@ Berikut ini adalah Koleksi yang dimiliki:
 5. [life-improving-the-conservation-status-of-species-and-habitats-european-commission](ebook/life-improving-the-conservation-status-of-species-and-habitats-european-commission.pdf) – wowlyyy (2026)
 6. [My-favourite-recipe-International-Cookbook-University-of-G-ttingen](ebook/My-favourite-recipe-International-Cookbook-University-of-G-ttingen.pdf) – wowlyyy (2026)
 7. [personal-safety-and-self-defense-training-strategic-living](ebook/personal-safety-and-self-defense-training-strategic-living.pdf) – wowlyyy (2026)
-8. [the-call-of-cthulhu-h-p-lovecraft](ebook/the-call-of-cthulhu-h-p-lovecrafts.pdf) – wowlyyy (2026)
+8. [the-call-of-cthulhu-h-p-lovecraft](ebook/the-call-of-cthulhu-h-p-lovecraft.pdf) – wowlyyy (2026)
 9. [What-Design-Can-t-Do-Essays-on-Design-and-Disillusion-Silvio-Lorusso](ebook/What-Design-Can-t-Do-Essays-on-Design-and-Disillusion-Silvio-Lorusso.pdf) – wowlyyy (2026)
 10. [unasylva-sustainable-wildlife-management-food-and-agriculture-organization-of-the-united-nations](ebook/unasylva-sustainable-wildlife-management-food-and-agriculture-organization-of-the-united-nations.pdf) – wowlyyy (2026) 
 ---
